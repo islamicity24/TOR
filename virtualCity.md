@@ -1,6 +1,6 @@
   
 #   Title: Term of Reference for VirtualCity Development and Recruitment Program
-by Benn Al Islamicity, [5/29/2023 5:39 PM]
+by Benn Al Islamicity & Rekan, [5/29/2023 5:39 PM]
 
 ##  Introduction
 
